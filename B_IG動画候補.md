@@ -12,17 +12,17 @@
 - 英文：`— Kawamoto (owner) | +81-90-6480-4129 | hirotakuhirotaku@gmail.com`
 - ※対外は**オーナー名義**（「Pista所有」と書かない）。担当名は河本で統一（清水は併記しない）。
 **📎 資料**：文面は「折り返しで個別送付」に統一済＝**今すぐ送信可**。返信が来たら英語勢へ `三田GH_EastHill_英語1枚マイソク_20260702.pdf`、国内勢へ日本語マイソクを添付。Drive共有URLが用意でき次第、文面に直リンクを差し込んでもよい。
-**送信前ゲート**：AD率は客付け業者(免許あり)に伝えるのは正常な商取引でOK。ただし**取得価格・含み益・売主事情は絶対に書かない**。対外送付前にsecretary/legalの開示ゲートを通す（[[outward-disclosure-gate]]）。**AD=2ヶ月で確定**。文中の **[物件資料リンク]** は送信前に確定して差し込む。
+**送信前ゲート**：**🆕 ADは初回コンタクトでは言及しない（2026/7/3ユーザー決裁）**。まず物件の魅力と撮影/客付けの打診に絞り、**AD条件（2ヶ月）は返信・商談化してから提示**する。取得価格・含み益・売主事情は絶対に書かない。対外送付前にsecretary/legalの開示ゲートを通す（[[outward-disclosure-gate]]）。文中の **[物件資料リンク]** は送信前に確定して差し込む。
 **🚫 同報禁止＝各社に個別送信**（一斉送信/CC/BCCは競合にAD率・戦略が透けるため厳禁）。secretary点検済(2026/7/2)。
 
 ## 【Tier 1｜成約課金の本命＝今すぐ送る】
 ### ① Tokyo Portfolio / Blackship Realty（英語・expat・仲介＝リーチ×成約課金の両取り）
 - **課金**：AD/紹介料（成約課金）。**連絡先**：[tokyoportfolio.com](https://tokyoportfolio.com/)（Alex Shapiro / [問い合わせ](https://tokyoportfolio.com/about/)）＋[blackshiprealty.com](https://blackshiprealty.com/)（港区南麻布5-15-12・代表 松野泰治）＋IG DM [@thetokyoportfolioguy](https://www.instagram.com/thetokyoportfolioguy/)
-> Hi Alex / Blackship team — I'm handling the leasing of a **fully-furnished trophy residence at Mita Garden Hills East Hill, Azabu-Juban (¥1.15M/month, ~73㎡)**: Good-Design-award interior, premium furniture, members' pool — ideal for a single executive or a professional couple (DINK) in your expat audience. We'd love to (a) list it on Tokyo Portfolio and (b) invite you for an English room tour, with tenant placement via a standard agent fee **equal to 2 months' rent**. Filming available **Sat 7/5–Sun 7/6 or Mon 7/7–Tue 7/8**. I'll share the full brochure on reply. Shall I hold a slot?
+> Hi Alex / Blackship team — I'm handling the leasing of a **fully-furnished trophy residence at Mita Garden Hills East Hill, Azabu-Juban (¥1.15M/month, ~73㎡)**: Good-Design-award interior, premium furniture, members' pool — ideal for a single executive or a professional couple (DINK) in your expat audience. We'd love to (a) list it on Tokyo Portfolio and (b) invite you for an English room tour, and we'd be glad to work out attractive placement terms with you. Filming available **Sat 7/5–Sun 7/6 or Mon 7/7–Tue 7/8**. I'll share the full brochure on reply. Shall I hold a slot? <!-- 初回AD非言及・条件は返信後 -->　
 
 ### ② ケン・コーポレーション 外国部（外資富裕の本丸・@tokyorent も同社）
 - **課金**：AD/業者間手数料（成約課金）。**連絡先**：[住まいの問い合わせ](https://www.kencorp.co.jp/housing/contact/)（オーナー/不動産会社の相談窓口あり）／外国部＝港区西麻布1-2-7（六本木駅徒歩3分・平日9-18）／IG [@kencorporation](https://www.instagram.com/kencorporation/)
-> ケン・コーポレーション外国部 ご担当者さま。麻布十番「三田ガーデンヒルズ East Hill」の**家具付ハイエンド賃貸（月115万・約73㎡・外資駐在の単身エグゼ/パワーカップル向け）**の客付けをご相談させてください。GD賞内装・一流家具付き・会員制プール利用付きです。**AD 2ヶ月** でお願いできればと存じます。あわせて **@tokyorent での掲載やリール露出**もご相談できれば幸いです。内見/撮影は**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可能。資料（英語/日本語マイソク）は折り返しで個別にお送りします。ご検討よろしくお願いいたします。
+> ケン・コーポレーション外国部 ご担当者さま。麻布十番「三田ガーデンヒルズ East Hill」の**家具付ハイエンド賃貸（月115万・約73㎡・外資駐在の単身エグゼ/パワーカップル向け）**の客付けをご相談させてください。GD賞内装・一流家具付き・会員制プール利用付きです。あわせて **@tokyorent での掲載やリール露出**もご相談できれば幸いです。内見/撮影は**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可能。**客付け条件（広告料等）は前向きにご相談させていただきます**。資料（英語/日本語マイソク）は折り返しで個別にお送りします。ご検討よろしくお願いいたします。 <!-- 初回AD非言及・条件は返信後 -->
 
 ### ③ RoomPa（ADブースト＋送客｜国内最大級リーチを成約課金/低コストで）
 - **課金**：送客＝成約時(家賃1ヶ月×25%)／ADブースト＝動画制作・広告運用が無料〜低コスト。**連絡先**：公式LINE／IG DM [@amufi_roompa](https://www.tiktok.com/@amufi_roompa)（[roompa.amufi.net](https://www.roompa.amufi.net/en)・運営 株式会社Amufi）
@@ -31,19 +31,19 @@
 ## 【Tier 2｜成約課金の客付け並走＝同時に送る】
 ### ④ CreaVision（麻布十番＝完全商圏の現役仲介）
 - **課金**：AD。**連絡先**：☎03-6890-7755（麻布十番1-7-1・10-21）／IG DM [@creavision_rent](https://www.instagram.com/creavision_rent/)／[公式](https://www.creavision.co.jp/)
-> CreaVision ご担当者さま。同じ麻布十番の「三田ガーデンヒルズ East Hill」家具付賃貸（月115万・約73㎡）の客付けを**AD 2ヶ月**でご相談させてください。地元商圏の反響に強い御社にぜひ。内見/撮影リールは**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。資料（英語/日本語マイソク）は折り返しで個別にお送りします。
+> CreaVision ご担当者さま。同じ麻布十番の「三田ガーデンヒルズ East Hill」家具付賃貸（月115万・約73㎡）の客付けをご相談させてください。地元商圏の反響に強い御社にぜひ。内見/撮影リールは**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。**客付け条件は前向きにご相談させていただきます**。資料（英語/日本語マイソク）は折り返しで個別にお送りします。 <!-- 初回AD非言及・条件は返信後 -->
 
 ### ⑤ モダンスタンダード（港区タワマン高級特化）
 - **課金**：AD。**連絡先**：[m-standard.co.jp](https://www.m-standard.co.jp/)／IG DM [@modern_standard_official](https://www.instagram.com/modern_standard_official/)
-> モダンスタンダード ご担当者さま。麻布十番「三田GH East Hill」家具付賃貸（月115万）の客付けを**AD 2ヶ月**でご相談したいです。港区高級に強い御社のIG/リール露出も併せてご検討ください。**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。資料（英語/日本語マイソク）は折り返しで個別にお送りします。
+> モダンスタンダード ご担当者さま。麻布十番「三田GH East Hill」家具付賃貸（月115万）の客付けをご相談したいです。港区高級に強い御社のIG/リール露出も併せてご検討ください。**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。**客付け条件は前向きにご相談させていただきます**。資料（英語/日本語マイソク）は折り返しで個別にお送りします。 <!-- 初回AD非言及・条件は返信後 -->
 
 ### ⑥ PLAZA HOMES（英語・駐在客付けの老舗）
 - **課金**：AD/英語掲載。**連絡先**：[realestate-tokyo.com](https://www.realestate-tokyo.com/)（英語問い合わせフォーム）
-> Hello PLAZA HOMES team — we'd like to offer a **fully-furnished luxury residence at Mita Garden Hills East Hill, Azabu-Juban (¥1.15M/month)** for your expat clients, with an agent fee **equal to 2 months' rent** plus English listing. Viewing available 7/5–7/8. I'll share the full brochure on reply.
+> Hello PLAZA HOMES team — we'd like to offer a **fully-furnished luxury residence at Mita Garden Hills East Hill, Azabu-Juban (¥1.15M/month)** for your expat clients, with an English listing and attractive placement terms we'd be glad to discuss. Viewing available 7/5–7/8. I'll share the full brochure on reply. <!-- 初回AD非言及・条件は返信後 -->
 
 ### ⑦ サイグサ／listory（フューチャープロパティ｜仲介機能＝客付けAD＋動画二次展開）
 - **課金**：客付けAD＋動画。**連絡先**：[f-property.com](https://f-property.com/business/)／DM [@saigusa_tokyo](https://x.com/saigusa_tokyo)
-> サイグサ／listory ご担当者さま。麻布十番「三田GH East Hill」家具付賃貸（月115万）を"作品型内見1本"として撮影いただき、客付けは**AD 2ヶ月**でご相談させてください。個人ch＋listory＋TikTokの二次展開も理想です（**一次動画・listory掲載・TikTok二次展開のすべてでPR/タイアップ明示を投稿条件とさせてください**）。**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。資料（英語/日本語マイソク）は折り返しで個別にお送りします。
+> サイグサ／listory ご担当者さま。麻布十番「三田GH East Hill」家具付賃貸（月115万）を"作品型内見1本"として撮影いただき、客付けもあわせてご相談させてください。個人ch＋listory＋TikTokの二次展開も理想です（**一次動画・listory掲載・TikTok二次展開のすべてでPR/タイアップ明示を投稿条件とさせてください**）。**7/5(土)-6(日)、または7/7(月)-8(火)**で調整可。**客付け条件は前向きにご相談させていただきます**。資料（英語/日本語マイソク）は折り返しで個別にお送りします。 <!-- 初回AD非言及・条件は返信後 -->
 
 ## 【Tier 3｜認知の前払い投資＝まず"単価だけ"取得（成約保証なし・余力次第）】
 ### ⑧ Tokyo Weekender（家具付き賃貸advertorialの実績あり）
